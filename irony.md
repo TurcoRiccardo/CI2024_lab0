@@ -1,0 +1,1 @@
+when the professor asks who knows the French knight meme but no one answers
